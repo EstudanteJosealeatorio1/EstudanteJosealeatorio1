@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @EstudanteJosealeatorio1
+- 👋 Hi, I’m josé augusto dos santos
 - 👀 I’m interested in desenvolvimento de jogos
 - 🌱 I’m currently learning inglês online
 - 💞️ I’m looking to collaborate on equipe e em empresas
